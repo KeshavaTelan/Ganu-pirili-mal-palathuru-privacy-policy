@@ -1,1 +1,0 @@
-# Ganu-pirili-mal-palathuru-privacy-policy
