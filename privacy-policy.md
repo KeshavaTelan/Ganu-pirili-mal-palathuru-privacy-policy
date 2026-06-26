@@ -1,6 +1,6 @@
 # Privacy Policy
 
-**Effective Date:** [Insert Date]
+**Effective Date:** June 25, 2026
 
 This privacy policy applies to the Ganupirimi app (hereby referred to as "Application") for mobile devices that was created by [Keshavasilva] (hereby referred to as "Service Provider") as a [Free] service. This service is intended for use "AS IS".
 
